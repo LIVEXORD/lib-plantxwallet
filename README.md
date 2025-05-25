@@ -1,0 +1,1 @@
+jangan di otak atik ini data base buat jawabaan soal plant x walelt
